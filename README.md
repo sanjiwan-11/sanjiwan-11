@@ -9,7 +9,7 @@
 👯 I’m looking to collaborate with people that are constantly pushing each other<br>
 🤝 I’m looking for help with Python in Data Analytics<br>
 💬 Ask me about OUter Space,Black hole, <br>
-⚡ Fun fact: I like to explore new places on my bike
+⚡ Fun fact: I like to explore new places on my bike and love to watch Anime favourite is ONE PIECE 🏴‍☠️
 
 
 ## 🌐 Socials:
