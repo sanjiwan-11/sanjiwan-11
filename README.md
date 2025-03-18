@@ -8,7 +8,7 @@
 🔭 I’m currently working on being a Data Analayst<br>
 👯 I’m looking to collaborate with people that are constantly pushing each other<br>
 🤝 I’m looking for help with Python in Data Analytics<br>
-💬 Ask me about Outer Space,Black hole, <br>
+💬 Ask me about Outer Space, Black hole, anything related to Space <br>
 ⚡ Fun fact: I like to explore new places on my bike and love to watch Anime, my favourite is ONE PIECE 🏴‍☠️
 
 
